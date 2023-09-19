@@ -4,5 +4,5 @@
 
 ## Current Time stamp
 
-00:36:20
-https://youtu.be/wYpCWwD1oz0?t=2180
+01:02:31
+https://youtu.be/wYpCWwD1oz0?t=3751
